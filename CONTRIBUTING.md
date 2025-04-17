@@ -1,0 +1,1 @@
+Welcome! We are excited that you are interested in contributing to our project. Your contributions are what makes our community thrive. To ensure that our collaboration is enjoyable and productive, please follow these guidelines:
